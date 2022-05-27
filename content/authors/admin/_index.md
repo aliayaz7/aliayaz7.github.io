@@ -91,13 +91,3 @@ Recently completed my __Computer Information Technology Diploma__ form [IQRA Col
 
 
 I secured __1st Position__ in Computer Information Technology in Board of Technical Education(BTE) Pershawar.
-
-
-
-
-
- 
-  
-  
- 
- I am __mobile firmware__ and __computer software__ operator. I can flash all companies mobile softwares, remove FRP Google account etc. 
